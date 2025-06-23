@@ -1,1 +1,26 @@
-# Barbarian
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-35%20(1).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-36%20(1).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-37%20(1).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-38%20(1).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-39%20(1).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-40.CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-41%20(1).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-42.CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-43.CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-44.CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-45%20(2).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-46%20(1).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-47%20(1).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-48%20(1).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-49%20(2).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-50%20(2).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-51%20(1).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-52%20(2).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-53%20(1).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-54.CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-55%20(2).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-56%20(2).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-57%20(2).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-58%20(2).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-59%20(1).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-60%20(2).CBZ
