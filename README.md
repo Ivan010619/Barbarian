@@ -24,3 +24,13 @@ https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-57%20(2).CBZ
 https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-58%20(2).CBZ
 https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-59%20(1).CBZ
 https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-60%20(2).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter%2061.cbz
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-62%20(1).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter%2063.cbz
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter%2064.cbz
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-65%20(1).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter%2066.cbz
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-67%20(1).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-68%20(1).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter%2069.cbz
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter%2070.cbz
