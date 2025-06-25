@@ -1,3 +1,12 @@
-https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-78.CBZ
-https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-79%20(1).CBZ
-https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-80.CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-84%20(1).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-85.CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-86.CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-87%20(1).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-88.CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-89.CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-90%20(1).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-91%20(1).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-92%20(1).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-93.CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-94%20(1).CBZ
+https://github.com/Ivan010619/Barbarian/raw/refs/heads/main/Chapter-95.CBZ
